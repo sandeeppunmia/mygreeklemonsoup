@@ -1,0 +1,1 @@
+Veg Greek Lemon Soup: It is a soup originated from Greek. All the ingredients together gives an exotic flavour to the soup.
